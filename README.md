@@ -1,2 +1,2 @@
 # project-anime-souls-rng
-wkwk gatau males ubah deskripsi
+wkwk gatau males ubah deskripsi (1)
